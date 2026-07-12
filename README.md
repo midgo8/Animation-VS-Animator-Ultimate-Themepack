@@ -22,7 +22,7 @@ For more precise tutorial:
 [![Tutorial!](https://img.youtube.com/vi/d38ylLUu4Eg/0.jpg)](https://www.youtube.com/watch?v=d38ylLUu4Eg)
 
 # SNAPSHOTS
-![Image Alt](https://github.com/midgo8/Alan-Becker-Themepack-FREE/blob/main/Screenshot%202026-07-12%20193909.png?raw=true)
+![Image Alt](https://github.com/midgo8/Alan-Becker-Themepack-FREE/blob/main/Screenshot%202026-07-12%20200209.png?raw=true)
 
 # CONSIDERING KNOWING ME?
 Want to know me? Here's my YT channel: https://www.youtube.com/@midgo-jie
